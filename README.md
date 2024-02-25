@@ -1,0 +1,2 @@
+References: https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gsmarena.com%2Fsamsung-phones-9.php&psig=AOvVaw3SZ3tH1eYehHFDUErv40ks&ust=1708982581126000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCLi3vq62x4QDFQAAAAAdAAAAABAV
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.vecteezy.com%2Ffree-vector%2Fsamsung-logo&psig=AOvVaw0oVuC71IaKezjGfbHGvsIT&ust=1708982385058000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCMCT99C1x4QDFQAAAAAdAAAAABAE
